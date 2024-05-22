@@ -1,0 +1,1 @@
+# Chyngyz-alimkulov.github.io
